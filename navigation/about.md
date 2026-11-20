@@ -81,11 +81,13 @@ Top 3 Animanga's I've Seen (in no particular order except One Piece at #1)
 
   - Watched entirity of Pre-Time-Skip on Netflix
   - Currently reading Dressrosa in the manga
-  - Own many pieces of One Piece merchandise.
+  - Own many pieces of One Piece merchandise.  
+
 [♾️] Jujutsu Kaisen  
 
   - Watched entirity of the anime
-  - Read entirity of the manga + modulo
+  - Read entirity of the manga + modulo  
+  
 [⚽] Blue Lock  
 
   - Watched entirity of the anime
